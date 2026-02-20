@@ -1,2 +1,1 @@
-Artificial intelligence is booming technoloy asajhd 
-asdfasdf
+Artificial intelligence
